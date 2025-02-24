@@ -2,4 +2,4 @@
 - 👀 I’m interested in cars, IT and kickboxing.
 - 🌱 I’m currently learning web dev.
 - 📫 How to reach me pandory293@gmail.com
-
+- 2025.02.25 - finally have some normal Windows computer.
